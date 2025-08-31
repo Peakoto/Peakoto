@@ -1,4 +1,5 @@
-I just make dumb ideas into codes
+Making weird ideas into codes
+𓆛𓆜𓆝𓆞𓆟
 
 
 
