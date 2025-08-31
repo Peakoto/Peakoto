@@ -1,5 +1,4 @@
-Making weird ideas into codes
-𓆛𓆜𓆝𓆞𓆟
+Making weird ideas into codes 𓆛𓆜𓆝𓆞𓆟
 
 
 
